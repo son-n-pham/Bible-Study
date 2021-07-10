@@ -2,6 +2,7 @@
 
 ## Daniel 7: 13-14: Son of Man
 13“In my vision at night I looked, and there before me was one like a son of man, coming with the clouds of heaven. He approached the Ancient of Days and was led into his presence. 14He was given authority, glory and sovereign power; all nations and peoples of every language worshiped him. His dominion is an everlasting dominion that will not pass away, and his kingdom is one that will never be destroyed.
+
 13Ta lại nhìn-xem trong những sự hiện-thấy ban đêm, nầy, có một người giống như con người đến với những đám mây trên trời; người tới đến Đấng Thượng-cổ và bị dẫn đến trước mặt Ngài. 14Người được ban cho quyền-thế, vinh-hiển, và nước; hầu cho hết thảy các dân, các nước, các thứ tiếng đều hầu-việc người. Quyền-thế người là quyền-thế đời đời chẳng qua đi, và nước người không bao giờ phải hủy-phá.
 https://www.youtube.com/watch?v=z6cWEcqxhlI
 
