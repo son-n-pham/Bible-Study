@@ -5,7 +5,7 @@
 13Ta lại nhìn-xem trong những sự hiện-thấy ban đêm, nầy, có một người giống như con người đến với những đám mây trên trời; người tới đến Đấng Thượng-cổ và bị dẫn đến trước mặt Ngài. 14Người được ban cho quyền-thế, vinh-hiển, và nước; hầu cho hết thảy các dân, các nước, các thứ tiếng đều hầu-việc người. Quyền-thế người là quyền-thế đời đời chẳng qua đi, và nước người không bao giờ phải hủy-phá.
 https://youtu.be/z6cWEcqxhlI
 
-## Why does God insis on Being Glorified
+## Why does God insist on Being Glorified
 https://www.maxanders.com/why-does-god-insist-on-being-glorified/
 - First, because He is truly glorious, and not to see that reveals an insufficiency, an inadequacy, a limitation in us. Since God is glorious and praiseworthy, there is something wrong with us if we don’t see it. And since God wants us to be mature and complete, lacking in nothing (James 1:2-4), He commissions us to glorify Him, for our good, so that we will come to see reality accurately.
 - Second, God calls on us to glorify Him because we need to place Him as the highest thing in our life for our own good… in order to be fulfilled and safe. If anything matters more to us than God, then we are giving higher glory to something else… and if that thing is taken away from us, as it may easily be, we are shattered.
